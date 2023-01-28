@@ -1,0 +1,1 @@
+- Lambda function --> https://www.youtube.com/watch?v=kWhIwlNkZm4&ab_channel=EnlearAcademy
